@@ -9,4 +9,5 @@
 [☕ Contact me here](meindoragon.carrd.co)
 
 ![Alt Text](https://c.tenor.com/Be2VMHgl378AAAAC/tohru-dragonmaid.gif)
-[█▌▌│▐││▌█▐▐││▐││█▌▌▐│](meindoragon.carrd.co)
+
+█▌▌│▐││▌█▐▐││▐││█▌▌▐│
