@@ -7,6 +7,7 @@
 
 
 [☕ Contact me here](https://meindoragon.carrd.co/) EN/PT/ES
+I like to make new friends, just relax, I don't bite (normally...), so call me there...
 
 ![Alt Text](https://media.tenor.com/kKOMZENhpyEAAAAC/new-game-ahagon-umiko-programming.gif)
 
