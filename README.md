@@ -8,6 +8,6 @@
 
 [☕ Contact me here](https://meindoragon.carrd.co/) EN/PT/ES
 
-![Alt Text](https://c.tenor.com/Be2VMHgl378AAAAC/tohru-dragonmaid.gif)
+![Alt Text](https://media.tenor.com/kKOMZENhpyEAAAAC/new-game-ahagon-umiko-programming.gif)
 
 █▌▌│▐││▌█▐▐││▐││█▌▌▐│
